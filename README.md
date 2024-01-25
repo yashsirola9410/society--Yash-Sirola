@@ -1,1 +1,1 @@
-# Tech-Brain-Project--Yash-Sirola
+# Society Project--Yash-Sirola
